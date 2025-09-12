@@ -1,1 +1,1 @@
-# Solucion-parcial-1-Teorico
+Nicolás Taborda Miranda - 408875
